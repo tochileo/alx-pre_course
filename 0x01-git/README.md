@@ -1,1 +1,1 @@
-My wife the love of my life
+My wife my all
